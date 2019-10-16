@@ -1,0 +1,15 @@
+<b>Pizza Instructions</b>
+- Stand up
+- Walk toward pizza table
+- Open the pizza boxes
+- Look at what types of pizza there are
+- Select pizza of choice
+- Select second pizza of choice
+- Contemplate life decisions
+- Shrug and walk back to seat
+- Open mouth
+- Insert pizza in mouth
+- Bite down on pizza
+- Immediately sense if pizza is too hott
+- If not too hot, chew pizza
+- Enjoy eating pizza
